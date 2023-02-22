@@ -1,3 +1,0 @@
-# Flash
-
-¿Lo has visto?
